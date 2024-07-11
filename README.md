@@ -10,7 +10,7 @@
 下载说明1、从guthub上面直接下载；
 
 2、123网盘（网盘链接：https://www.123pan.com/s/ImmlVv-KPtm 提取码:yger）  
-夸克网盘(链接：https://pan.quark.cn/s/d91582003cf 提取码：CSfH）  
+夸克网盘（链接：https://pan.quark.cn/s/3e4802fad28d 提取码：ZJbr）  
 百度网盘（链接: 链接: https://pan.baidu.com/s/1OB5tUaCwyJnYp1dOpoGf0A?pwd=yger 提取码: yger）  
 
 
