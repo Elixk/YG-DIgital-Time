@@ -9,9 +9,9 @@
 使用指南：
 下载说明1、从guthub上面直接下载；
 
-2、123网盘（网盘链接：https://www.123pan.com/s/ImmlVv-KPtm 提取码:yger）
-夸克网盘(链接：https://pan.quark.cn/s/d91582003cf 提取码：CSfH）
-百度网盘（链接: 链接: https://pan.baidu.com/s/1OB5tUaCwyJnYp1dOpoGf0A?pwd=yger 提取码: yger）
+2、123网盘（网盘链接：https://www.123pan.com/s/ImmlVv-KPtm 提取码:yger）  
+夸克网盘(链接：https://pan.quark.cn/s/d91582003cf 提取码：CSfH）  
+百度网盘（链接: 链接: https://pan.baidu.com/s/1OB5tUaCwyJnYp1dOpoGf0A?pwd=yger 提取码: yger）  
 
 
 解压说明1、解压密码全为中文；2、解压密码不会直接给出，需要自己填词或者参见一些特定的群以及询问万能的群友得到完整的解压密码；3、解压密码：（1）太祖麾下的（2）卫兵，其中（1）为咱们敬爱的headmaster的姓氏，单字；（2）为我们给一些激进分子起的昵称，是带着强烈希望他们是可以健康正常使用大脑判断功能的doge，单字，繁体字。4、需要下载完全部rar文件，然后在同一目录下解压part1的rar文件
